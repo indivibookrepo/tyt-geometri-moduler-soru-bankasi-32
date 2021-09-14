@@ -1,0 +1,1 @@
+# tyt-geometri-moduler-soru-bankasi-32
